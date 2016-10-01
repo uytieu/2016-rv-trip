@@ -1,5 +1,10 @@
 # RV trip fall 2016
-Notes from our RV experience traveling in a 27ft Winnebego with slide out
+Notes from our RV trip.
+
+## Vehicle type
+- 27ft Winnebego with slide out
+- Rented from Family RV
+- $1200/week (estimate)
 
 ## Places we stayed
 - Santa Cruz Redwoods RV Resort (2 nights)
