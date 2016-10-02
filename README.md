@@ -31,7 +31,6 @@ Notes from our RV trip.
 - Make sure all valves are pushed in and closed before unscrewing tank caps
 - Do not bring your own fire wood to location. Buy local.
 - Dump tanks before traveling, to reduce weight and save on fuel
-- Blue apron made cooking easy while traveling. 
 - Cooking in RV is ok with limited space, but cooking outside is best
 - Trucks are not made to tow RV trailers but best for towing 5th wheels (weight distribution)
 
@@ -40,3 +39,9 @@ Notes from our RV trip.
 - Separate gas grill for outdoor cooking
 - Get a class "A" RV (bus)
 - Bring extra tools for emergencies
+- Large cooler
+- Water filter attachment
+
+## Time savers
+- Ordered blue apron for quick and easy meal prep. No need to run to groceries or pack extra spices.
+
